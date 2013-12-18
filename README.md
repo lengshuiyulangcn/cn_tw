@@ -1,0 +1,1 @@
+collect the terms of the same meaning between china mainland and taiwan
